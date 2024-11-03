@@ -22,7 +22,7 @@ Laws of motion, gravitation, minting coins, disliking [Robert Hooke](http://en.w
 
 ### Research interests
 
-Cooling, power series, optics, alchemy, planetary motions, apples.
+Cooling, power series, optics, alchemy, planetary motions, apples. ,mn,am,asd m,mnDS 
 
 
 ## Education
